@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Femke Ballieux
-- 👀 I’m a bachelor student in Astronomy at Leiden University
+- 👀 I’m a master student in Astronomy at Leiden University
 - 📫 How to reach me; fjballieux@ziggo.nl
